@@ -20,7 +20,3 @@
 
 ##### Una todos os ingredientes em uma xícara funda e coloque para assar no microondas por um minuto e dez segundos.
 
-
-
-
-
